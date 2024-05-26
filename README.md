@@ -1,2 +1,7 @@
 # Projet-de-multitache
 projet de multitache
+Membres du groupe:
+-GYEBRE BRICE JOSEPH EMERIC
+-AMOIN JOCELYNE AUDREY KOUACOU
+-CHELYAT AMINA
+-MBIYA TSHILOMPO DAN
